@@ -1,4 +1,4 @@
-# I'm currently reading Steinbeck's *East of Eden* for the first time as an independent pleasure read. I enjoy Steinbeck's conversational storytelling and I'll use this space to document some of the sentences I find most striking. #
+**I'm currently reading Steinbeck's *East of Eden* for the first time for personal pleasure. I enjoy Steinbeck's conversational storytelling and I'll use this space to document some of the sentences I find most striking. **
 
 - "...[they] were mountains full of sun and loveliness and a kind of invitation, so that you wanted to climb into their warm foothills almost as you want tot climb into the lap of a beloved mother."
 
